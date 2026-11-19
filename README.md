@@ -11,7 +11,7 @@
 - 🎓estudié bachillerato y salí como técnico diseño gráfico [I.E nuevo latir](https://www.londonmet.ac.uk/)
 - 🎓 estudie diseño gráfico como competencias [Instituto autónoma de nariño] (http://www.matrix-edu.com/)
 - 🏡'vivo por colegio **nuevo latir **
-- ⚡ **datos curiosos** : 🍕 🏉 🏏 🎥 🚞
+- ⚡ **datos curiosos** : 🍕  🏏  🚞
 
 <br>
 
